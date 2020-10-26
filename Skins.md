@@ -2,6 +2,9 @@
 # [Aricin Edit](https://drive.google.com/file/d/1ECw-EiNCyv5_vzG3jW7GSSqPlBjFLSgX/view?usp=sharing)
 ![Aricin Edit](https://user-images.githubusercontent.com/66593133/91436485-d7f9fb00-e885-11ea-9a99-faab3d5d5e77.jpg)
 
+# [awawawawa](https://cdn.discordapp.com/attachments/229987181316407296/758944300200886272/-_awawawa.osk)
+![awawawawa](https://user-images.githubusercontent.com/66593133/97173417-87841880-17b6-11eb-86bd-424b288ec87c.jpg)
+
 # [Bloo v1.1 Edit](https://drive.google.com/file/d/1ji80ePzO-Rs1jAC7Og8mJQQwi4JIpYTu/view?usp=sharing)
 ![Bloo v1 1 Edit](https://user-images.githubusercontent.com/66593133/91436501-e1836300-e885-11ea-89eb-639bd511f3c2.jpg)
 
