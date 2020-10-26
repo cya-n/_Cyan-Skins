@@ -14,8 +14,17 @@
 # [Freddie Benson Edit](https://drive.google.com/file/d/1E5FBLqIcSDgPyZ5D22zheeAu1V9ltcgB/view?usp=sharing)
 ![Freddie Benson Edit](https://user-images.githubusercontent.com/66593133/91436541-f06a1580-e885-11ea-9a17-c74761edd600.jpg)
 
+# [Potla NM](https://drive.google.com/file/d/1QdTsE01UEP35ZqnCLJjLMYJASyWLgKb4/view?usp=sharing)
+![Potla NM](https://user-images.githubusercontent.com/66593133/97172919-bf3e9080-17b5-11eb-8efa-e528384f683c.jpg)
+
+#[Seoul+](https://drive.google.com/file/d/1Cu1sYvyWYI38b4xKq8_dQg3Ras4cPn7N/view?usp=sharing)
+![Seoul+](https://user-images.githubusercontent.com/66593133/97173012-e72df400-17b5-11eb-947b-65c2eb281ae9.jpg)
+
 # [Whitecat Edit](https://drive.google.com/file/d/1lcsnEmXEQV9nSk5ltqcK436vbo4q06t-/view?usp=sharing)
 ![Whitecat Edit](https://user-images.githubusercontent.com/66593133/91436550-f52ec980-e885-11ea-9541-9c9aaa7b049a.jpg)
+
+# [wtf](https://drive.google.com/file/d/1tDN33Wr3_kl1j0rAMtcG2gaXp4TsLWdu/view?usp=sharing)
+! [wtf](https://user-images.githubusercontent.com/66593133/97172793-8e5e5b80-17b5-11eb-927f-43a04ae2d315.jpg)
 
 # [WWW Alpha Edit](https://drive.google.com/file/d/1pfAlNmz2vl6Q7uE68pWn9IrLD1X5Mmse/view?usp=sharing)
 ![WWW Alpha Edit](https://user-images.githubusercontent.com/66593133/91436556-f829ba00-e885-11ea-86ea-1e2f493979f9.jpg)
