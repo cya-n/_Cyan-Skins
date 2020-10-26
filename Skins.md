@@ -24,7 +24,7 @@
 ![Whitecat Edit](https://user-images.githubusercontent.com/66593133/91436550-f52ec980-e885-11ea-9541-9c9aaa7b049a.jpg)
 
 # [wtf](https://drive.google.com/file/d/1tDN33Wr3_kl1j0rAMtcG2gaXp4TsLWdu/view?usp=sharing)
-! [wtf](https://user-images.githubusercontent.com/66593133/97172793-8e5e5b80-17b5-11eb-927f-43a04ae2d315.jpg)
+![wtf](https://user-images.githubusercontent.com/66593133/97172793-8e5e5b80-17b5-11eb-927f-43a04ae2d315.jpg)
 
 # [WWW Alpha Edit](https://drive.google.com/file/d/1pfAlNmz2vl6Q7uE68pWn9IrLD1X5Mmse/view?usp=sharing)
 ![WWW Alpha Edit](https://user-images.githubusercontent.com/66593133/91436556-f829ba00-e885-11ea-86ea-1e2f493979f9.jpg)
